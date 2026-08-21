@@ -4,4 +4,4 @@
 
  $$\color{lightgrey}{\text{ — 𝒸𝒽𝑜𝒸𝑜𝓁𝒶 !}}$$
 
-![catgirl-chocola.gif](catgirl-chocola.gif)
+   ![catgirl-chocola.gif](catgirl-chocola.gif)
