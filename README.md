@@ -8,4 +8,4 @@
 ![](https://komarev.com/ghpvc/?username=scraying&color=F1DBDD)
 
 
-![k23.png](k23.png) ![k12.png](k23.png)
+![k23.png](k23.png) ![k12.png](k12.png)
