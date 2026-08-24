@@ -18,7 +18,7 @@ $$\color{lightgrey}{\text{ — 𝓋𝒶𝓃𝒾𝓁𝓁𝒶 !}}$$
 
 ![0f1fb34d3e9b0f05fc476e66f73dd399.gif](0f1fb34d3e9b0f05fc476e66f73dd399.gif)
 
-![e77.png](e77.png) ![e104.png](e104.png) ![tumblr_e2c6265dd84436fcd3a8f013ca8e476a_93c2a697_100.png](tumblr_e2c6265dd84436fcd3a8f013ca8e476a_93c2a697_100.png)
+![e77.png](e77.png) ![e104.png](e104.png) ![tumblr_e2c6265dd84436fcd3a8f013ca8e476a_93c2a697_100.png](tumblr_e2c6265dd84436fcd3a8f013ca8e476a_93c2a697_100.png) ![lenkagamine.gif](lenkagamine.gif) ![yuriwarning.gif](yuriwarning.gif) ![b13.png](b13.png) ![digitan.png](digitan.png)
 
 ![608938067-f77c9926-ffc2-4809-ad6f-26964d17c025.png](608938067-f77c9926-ffc2-4809-ad6f-26964d17c025.png)
 
