@@ -1,5 +1,5 @@
 **$$\color{#F1DBDD}{\text{𝒽𝒾𝓎𝒶𝒶 !!}}$$**
-
+![608938067-f77c9926-ffc2-4809-ad6f-26964d17c025.png](608938067-f77c9926-ffc2-4809-ad6f-26964d17c025.png)
 ![catgirl-chocola.gif](catgirl-chocola.gif)
 
  $$\color{lightgrey}{\text{ — 𝒸𝒽𝑜𝒸𝑜𝓁𝒶 !}}$$
