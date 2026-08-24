@@ -23,5 +23,7 @@ $$\color{lightgrey}{\text{ — 𝓋𝒶𝓃𝒾𝓁𝓁𝒶 !}}$$
 ![608938067-f77c9926-ffc2-4809-ad6f-26964d17c025.png](608938067-f77c9926-ffc2-4809-ad6f-26964d17c025.png)
 
 
+![sybau-slox-slox-sybau.webp](sybau-slox-slox-sybau.webp) 
+$$\color{lightgrey}{\text{ bye }}$$😭✌️✌️😭✌️😭✌️
 
 
